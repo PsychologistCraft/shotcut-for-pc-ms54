@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows secure Plugin: export-presets & 4K-export offers the most advanced Shotcut for PC | Shotcut for Windows plugin, with export-presets and
 
 
 
